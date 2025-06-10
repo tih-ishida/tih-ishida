@@ -2,7 +2,8 @@
 
 Aqui é a **Tiemy Ishida**
 
-- vivo para Jesus 
+- vivo para Jesus
+- sou meio brasileira e meio japonesa :)
 - eu amo filmes, series, livros, animes, entre outros 
 - genero fav é romance e distopias
 - como de tudo de comida, em especial amo sorvete
